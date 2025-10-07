@@ -2,4 +2,4 @@
 - 👀 I’m interested in ...aprender 
 - 🌱 I’m currently learning ...a cmo usar esta pagina web
 - 💞️ I’m looking to collaborate on ...aprendisaje y entendimiento de las IA
-- 📫 How to reach me ...numero 944006276
+- 📫 How to reach me ...numero 929041374
